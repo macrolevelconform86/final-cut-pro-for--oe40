@@ -1,4 +1,4 @@
-# 
+# elite Final Cut Pro for macOS Filter | glitch-effect + social-media-export is the best Final Cut Pro for macOS filter, featuring glitch-effect and social-media-export. Safe,
 
 
 
